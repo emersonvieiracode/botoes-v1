@@ -1,2 +1,2 @@
-Bot&otilde;es animados v.01
+Botoes animados v.01
 ===============
